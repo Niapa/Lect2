@@ -1,4 +1,4 @@
-## Hello!
+## Hello my friends!
 
 Teftelka is a good cat!
 
